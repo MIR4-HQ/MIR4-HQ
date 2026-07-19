@@ -21,4 +21,4 @@ i <3 cuddles and everythign even if its not in my name! FRQS are always open!! Y
 P.S:
 please dont overshare about yourself. id have around 20 nickels everytime someone randomly vented to me... i know im a source of joy but its getting out of hand especially if i dont know you well
 
-![Alt text of the image](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg)
+![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg)

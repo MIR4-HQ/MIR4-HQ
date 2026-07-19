@@ -16,4 +16,4 @@ i <3 cuddles and everythign even if its not in my name! FRQS are always open!!
   
 </details>
 
-please dont overshare about yourself id have around 20 nickels everytime someone randomly vented to me... i know im a source of joy but its getting out of hand
+please dont overshare about yourself id have around 20 nickels everytime someone randomly vented to me... i know im a source of joy but its getting out of hand especially if i dont know you well

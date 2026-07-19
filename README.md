@@ -6,7 +6,7 @@ i <3 cuddles and everythign even if its not in my name! FRQS are always open!! Y
   <summary>BYI</summary>
   
   ### ^_^ BASICS
-   * **omniverted**, please excuse my near-frequent joyous levels that dwindle to quietness
+   * [**omniverted**](https://www.simplypsychology.org/what-is-an-omnivert-meaning-and-traits.html), please excuse my near-frequent joyous levels that dwindle to quietness
      
    * i get nervous REALLY easily even if i'm feeling extroverted. extremely so
      

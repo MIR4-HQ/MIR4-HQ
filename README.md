@@ -12,7 +12,7 @@ i <3 cuddles and everythign even if its not in my name! FRQS are always open!! Y
      
    * not a fictkin please dont assume im one cause i use my red skin 24/7
      
-   * dont be overly sexual im #minor and have a #partner. basic dni but i will just ignore/block if i dont like you
+   * uncomfortable with flirting ooc, i have a partner. PLEASE do not do overly sexual jokes both ic & ooc.
 
 ### extroversion!
    * this is like really easy to tell when i am #extroverted. usually i'll be chatting joyously and rping!

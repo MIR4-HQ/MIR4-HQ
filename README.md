@@ -23,6 +23,7 @@ i <3 cuddles and everythign even if its not in my name! FRQS are always open!! Y
 
 ### introversion
 * you can tell when i'm in my introverted state if i'm lurking rather than interacting, especially when i have slower, delayed responses. sometimes ill put it in my name.
+* ^^ probably on like. DND. methinks
 
 * i'm still okay to c+h i just. don't really know about chatting. 
 

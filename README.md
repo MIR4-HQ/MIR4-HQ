@@ -1,5 +1,7 @@
 hii friends hiii :]
 
+call me cappy/candie (not cappy0 psl stop comparing sob emoji)
+
 i <3 cuddles and everythign even if its not in my name! FRQS are always open!! YIPPIE!
 
 <details>

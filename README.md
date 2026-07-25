@@ -4,9 +4,9 @@ call me cappy/candie (not cappy0 psl stop comparing sob emoji)
 
 i <3 cuddles and everythign even if its not in my name! bmf i love makinf new friends!!
 
-offline mode warrior GULP btw i have school 0_0
+offline mode warrior GULP btw i have school 0_0 || fyi im fr just a guy w social debuffs so dont expect too much from me thanks
 
-im fr just a guy w social debuffs so dont expect too much from me thanks
+idle is my usual status, busy = im in vc/offtab warrior
 
 <details>
   <summary>BYI</summary>

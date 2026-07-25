@@ -6,6 +6,8 @@ i <3 cuddles and everythign even if its not in my name! FRQS are always open!! Y
 
 offline mode warrior GULP
 
+im fr just a guy w social debuffs so dont expect too much from me thanks
+
 <details>
   <summary>BYI</summary>
   

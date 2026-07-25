@@ -44,4 +44,4 @@ i have no *specific* dni but if you dont like. doubles (specifically for red). t
 
 ![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg)
 
-someone force me to make this look good
+someone force me to make this look good lke holy shit i hat e the formatting i just looked at it just now okay whatveer

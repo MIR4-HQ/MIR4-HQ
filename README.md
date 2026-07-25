@@ -44,9 +44,6 @@ eerhhhuueeuue ill remake this sectioni genuinely dont know what triggers this st
 
 i have no *specific* dni but if you dont like. doubles (specifically for red). then stay away im sorry but i genuinely never switch from red 
 
-![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg)
-
-
-<img width="436" height="376" alt="caption" src="https://github.com/user-attachments/assets/12cf16c8-51d2-4f7a-be5a-8e52e6bcf930" />
+![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg) <img width="200" height="200" alt="caption" src="https://github.com/user-attachments/assets/12cf16c8-51d2-4f7a-be5a-8e52e6bcf930" />
 
 someone force me to make this look good lke holy shit i hat e the formatting i just looked at it just now okay whatveer

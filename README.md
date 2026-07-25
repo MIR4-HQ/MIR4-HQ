@@ -47,10 +47,6 @@ i have no *specific* dni but if you dont like. doubles (specifically for red). t
 ![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg)
 
 
-
-https://github.com/user-attachments/assets/0d5ed7db-5bbf-4ea3-b9c4-34ad825f6e3a
-
-my gameplay btw ^^
-
+<img width="436" height="376" alt="caption" src="https://github.com/user-attachments/assets/12cf16c8-51d2-4f7a-be5a-8e52e6bcf930" />
 
 someone force me to make this look good lke holy shit i hat e the formatting i just looked at it just now okay whatveer

@@ -27,11 +27,13 @@ idle is my usual status, busy = im in vc/offtab warrior
 
 ### introversion
 * you can tell when i'm in my introverted state if i'm lurking rather than interacting, especially when i have slower, delayed responses. sometimes ill put it in my name.
-* ^^ probably on like. DND. methinks
+* lurking as in strayingn farther from areas im usualy at or hiding behind stuff yea
 
 * i'm still okay to c+h i just. don't really know about chatting. #noOffense
 
 * dont mistake me being offtab as me being introverted yay!
+
+eerhhhuueeuue ill remake this sectioni genuinely dont know what triggers this state. like. idk bruh. WHATEVER. 
 
 </details>
 

@@ -29,7 +29,7 @@ im fr just a guy w social debuffs so dont expect too much from me thanks
 * you can tell when i'm in my introverted state if i'm lurking rather than interacting, especially when i have slower, delayed responses. sometimes ill put it in my name.
 * ^^ probably on like. DND. methinks
 
-* i'm still okay to c+h i just. don't really know about chatting.
+* i'm still okay to c+h i just. don't really know about chatting. #noOffense
 
 * dont mistake me being offtab as me being introverted yay!
 

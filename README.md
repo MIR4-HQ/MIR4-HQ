@@ -8,6 +8,8 @@ offline mode warrior GULP btw i have school 0_0 || fyi im fr just a guy w social
 
 idle is my usual status, busy = im in vc/offtab warrior
 
+highkey suggest w2i when you know im offtab :]
+
 <details>
   <summary>BYI</summary>
   
@@ -43,5 +45,12 @@ eerhhhuueeuue ill remake this sectioni genuinely dont know what triggers this st
 i have no *specific* dni but if you dont like. doubles (specifically for red). then stay away im sorry but i genuinely never switch from red 
 
 ![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg)
+
+
+
+https://github.com/user-attachments/assets/0d5ed7db-5bbf-4ea3-b9c4-34ad825f6e3a
+
+my gameplay btw ^^
+
 
 someone force me to make this look good lke holy shit i hat e the formatting i just looked at it just now okay whatveer

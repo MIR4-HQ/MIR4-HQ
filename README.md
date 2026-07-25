@@ -2,9 +2,9 @@ hii friends hiii :]
 
 call me cappy/candie (not cappy0 psl stop comparing sob emoji)
 
-i <3 cuddles and everythign even if its not in my name! FRQS are always open!! YIPPIE!
+i <3 cuddles and everythign even if its not in my name! bmf i love makinf new friends!!
 
-offline mode warrior GULP
+offline mode warrior GULP btw i have school 0_0
 
 im fr just a guy w social debuffs so dont expect too much from me thanks
 

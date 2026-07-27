@@ -21,6 +21,7 @@ whether i be extroverted/introverted i get nervous SUPER duper easily... <br>
     UTC+8, i play on & off due to school <br>
     i'm always open to new friends !! BMF!! #Plz <br>
     90% of the time i'll be in offline mode i promise i didnt unfriend <br>
+    if u see me chatting w my friends PLS feel free to int that's the only time i wont be awkward asf <br>
     just fr don't be weird/super sexual i get uncomf ;;
   </details>
 

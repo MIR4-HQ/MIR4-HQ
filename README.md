@@ -33,9 +33,9 @@ whether i be extroverted/introverted i get nervous SUPER duper easily... <br>
 status: away > my usual status | busy > offtab or lurking around <br>
   if i dont respond in a milisecond whisper me!! <br>
   "how can we tell if you're on the introverted spectrum!!" im hiding Behind Something.. like a tree.. <br>
-  ponytown social links coming never im too #lazy
+  ponytown social links coming never im too #lazy i think ill like get an atabook or something?????bruh idk😭😭😭😭
 
- "do i prefer being behind or infrontf when c+h" man i dont care but people usually go behind me <br>
+ "do i prefer being behind or infrontf when c+h" tbh idrc but people usually go behind me <br>
  btw when u do come up to c+h me and i poof i swear i didnt ditch u i probably logged off for the day or forgot to tap teh screen <br>
  also i tend to be mostly silent if you do come up to c+h and my name is like "robloxmaxxing" or whatver. sorry idk how to start convo #chudRightHere unless u like whispered first. let it be known im probabvly gonna yap sorry SORRY!!!
 

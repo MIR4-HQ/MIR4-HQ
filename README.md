@@ -19,6 +19,7 @@
     
   -  i'm omniverted <br>
 whether i be extroverted/introverted i get nervous SUPER duper easily... <br>
+  - mild dyslexia, so dont use hard 2 read fonts/typing quirks bc of that <br>
   -  UTC+8, i play on & off due to school <br>
    - i'm always open to new friends !! BMF!! #Plz <br>
    - 90% of the time i'll be in offline mode i promise i didnt unfriend <br>
@@ -62,7 +63,8 @@ im greedy asf and i love ALL the ships. like bruh if youre gonna come up to me a
   </details>
 
  
-  FUUCCKK THIS IS WORSE THAN THE LAST TIME but okay its fine bruh im handing this formatting shit to Future Cappy 😂😂😂
+  FUUCCKK THIS IS WORSE THAN THE LAST TIME but okay its fine bruh im handing this formatting shit to Future Cappy 😂😂😂 <br>
+  hi im future cappy and you forgot to put one of your reading disasbilities you fucking dumbass past cappy
 
   ![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg) <img width="200" height="200" alt="caption" src="https://github.com/user-attachments/assets/12cf16c8-51d2-4f7a-be5a-8e52e6bcf930" />
 

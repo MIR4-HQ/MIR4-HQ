@@ -1,5 +1,10 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Eagle+Lake&size=16&duration=2000&pause=1000&color=DF428D&repeat=false&width=435&lines=The+rush.;Of+blood.;...+I+want.;To+get+under+your+skin.;I+know%2C;You're+scared.;But+I'll+take+care+of+you.;-_-)](https://git.io/typing-svg)
 
+
+<div align="right"> 
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Eagle+Lake&size=16&duration=2000&pause=1000&color=DF428D&repeat=false&width=435&lines=The+rush.;Of+blood.;...+I+want.;To+get+under+your+skin.;I+know%2C;You're+scared.;But+I'll+take+care+of+you.;-_-)](https://git.io/typing-svg) </div>
+
+<div align="center">
   <table>
     <tr>
       <td>
@@ -9,10 +14,9 @@
       </td>
     </tr>
   </table> 
+ </div>
 
-  wooww wip hi friends im cappy btw! (or candie) <br>
-  i LOVE C+H doesn't matter who you are #ComeHere. <br>
-  user has severe social debuffs from birth & is Just A Guy. diagnosed with terminal chronically offlineness
+  <div align="center"> cappy / candie 's the name (●'◡'●) </div>
 
   <details>
   <summary> $\color{#D23E67FF}\textsf{  　　BYI  　　}$ </summary>

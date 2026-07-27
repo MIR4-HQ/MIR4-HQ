@@ -44,6 +44,13 @@ im greedy asf and i love ALL the ships. like bruh if youre gonna come up to me a
     GO MY POLYSKELD❤️❤️❤️ <br>
   </details>
 
+
+  <details>
+  <summary> $\color{#D23E67FF}\textsf{fandoomss}$ </summary>
+    mainly among us (show, rodamrix, on guard, remnant, yadayadyada you get it) <br>
+    mcyt but mainly mcrp, ish's state smp😍😍😍😍 DECAYED AND DECREPIT😍😍😍 <br>
+    sorry im a loser i have like 1 hyperfix and thats it but i'm aware of everything popular doe (mostly)
+  </details>
   
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Eagle+Lake&size=16&duration=2001&pause=1000&color=AE2F2F&repeat=false&width=435&lines=The+rush.;...+Of+blood%3F;You+want%3F;To+get+under+my+skin.;I+know%2C;...+I'm+scared.;But+you'll+take+care+of+me!;%5E_%5E)](https://git.io/typing-svg)

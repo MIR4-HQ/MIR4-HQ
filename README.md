@@ -1,24 +1,3 @@
-
-<div align="right"> 
-  
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Eagle+Lake&size=16&duration=2000&pause=1000&color=DF428D&repeat=false&width=435&lines=The+rush.;Of+blood.;...+I+want.;To+get+under+your+skin.;I+know%2C;You're+scared.;But+I'll+take+care+of+you.;-_-)](https://git.io/typing-svg) </div>
-
-<div align="center">
-  <table>
-    <tr>
-      <td>
-   $\color{#AE2F2FFF}\textsf{　And I know}$ $\color{#C33E55FF}\textsf{that I'm not}$ $\color{#D23E67FF}\textsf{good.  　　}$    <br>
-       $\color{#C33E55FF}\textsf{　I'm never gonna}$ $\color{#D23E67FF}\textsf{treat you}$ $\color{#C33E55FF}\textsf{like i should.}$ <br>
-        <br>
-      </td>
-    </tr>
-  </table> 
- </div>
- 
-<div align="center"> 
-  
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Eagle+Lake&size=16&duration=2001&pause=1000&color=AE2F2F&repeat=false&width=435&lines=The+rush.;...+Of+blood%3F;You+want%3F;To+get+under+my+skin.;I+know%2C;...+I'm+scared.;But+you'll+take+care+of+me!;%5E_%5E)](https://git.io/typing-svg) </div>
-
    ---
 
   <div align="center"> 

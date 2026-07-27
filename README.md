@@ -22,7 +22,8 @@
 
   <div align="center"> 
     
-  $\color{#ebd2ab}\textsf{　cappy /}$ $\color{#ebd2ab}\textsf{candie 's }$ $\color{#e8b88b}\textsf{　the name }$ $\color{#edb085}\textsf{　(●'◡'●) }$ 
+  $\color{#ebd2ab}\textsf{　cappy /}$ $\color{#e6c7a1}\textsf{candie 's }$ $\color{#e8b88b}\textsf{　the name }$ $\color{#edb085}\textsf{　(●'◡'●) }$ <br>
+
     
   </div>
 
@@ -30,14 +31,11 @@
   <details>
   <summary> $\color{#e3685d}\textsf{  　　BYI  　　}$ </summary>
     
-  -  i'm omniverted <br>
-whether i be extroverted/introverted i get nervous SUPER duper easily... <br>
-  - mild dyslexia, so dont use hard 2 read fonts/typing quirks bc of that <br>
-  -  UTC+8, i play on & off due to school <br>
-   - i'm always open to new friends !! BMF!! #Plz <br>
-   - 90% of the time i'll be in offline mode i promise i didnt unfriend <br>
-   -  if u see me chatting w my friends PLS feel free to int that's the only time i wont be awkward asf <br>
-  - but for real just be normal is all i ask for. basic dni criteria n pls dont make super duper sexual jokes. <br>
+ [omniverted](https://health.clevelandclinic.org/omnivert-vs-ambivert) $\color{#ebd2ab}\textsf{ n' diagnosed w/　}$ [mild dyslexia](https://my.clevelandclinic.org/health/diseases/6005-dyslexia) $\color{#ebd2ab}\textsf{ (we do be working on it tho!!)　}$ <br>
+ $\color{#e3bf94}\textsf{user has weird typing quirks}$ #likeThis $\color{#e3bf94}\textsf{but its mainly for funsies :] }$ <br>
+ $\color{#e8b88b}\textsf{　i ragebait/tease, i use caps a lot, act IC sometimes, so plsplsPLEASE tell me if you need tonetags}$ <br>
+  $\color{#edb085}\textsf{ im very friendly so don't be shy cause I'M the shy one here ok..? ok! hashtag BMF!! }$
+
   </details>
 
    </div>

@@ -43,11 +43,6 @@ status: away > my usual status | busy > offtab or lurking around <br>
  
   </details>
 
- 
-  FUUCCKK THIS IS WORSE THAN THE LAST TIME but okay its fine bruh im handing this formatting shit to Future Cappy 😂😂😂
-
-  ![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg) <img width="200" height="200" alt="caption" src="https://github.com/user-attachments/assets/12cf16c8-51d2-4f7a-be5a-8e52e6bcf930" />
-
   <details>
   <summary> $\color{#D23E67FF}\textsf{  　　ships or wtv  　　}$ </summary>
     allshipper EXCEPT. EXCEPT! FOR ILLEGAL ONES. <br>
@@ -65,6 +60,12 @@ im greedy asf and i love ALL the ships. like bruh if youre gonna come up to me a
     mcyt but mainly mcrp, ish's state smp😍😍😍😍 DECAYED AND DECREPIT😍😍😍 <br>
     sorry im a loser i have like 1 hyperfix and thats it but i'm aware of everything popular doe (mostly)
   </details>
+
+ 
+  FUUCCKK THIS IS WORSE THAN THE LAST TIME but okay its fine bruh im handing this formatting shit to Future Cappy 😂😂😂
+
+  ![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg) <img width="200" height="200" alt="caption" src="https://github.com/user-attachments/assets/12cf16c8-51d2-4f7a-be5a-8e52e6bcf930" />
+
   
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Eagle+Lake&size=16&duration=2001&pause=1000&color=AE2F2F&repeat=false&width=435&lines=The+rush.;...+Of+blood%3F;You+want%3F;To+get+under+my+skin.;I+know%2C;...+I'm+scared.;But+you'll+take+care+of+me!;%5E_%5E)](https://git.io/typing-svg)

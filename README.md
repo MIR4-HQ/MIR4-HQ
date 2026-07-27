@@ -64,6 +64,8 @@ status: away > my usual status | busy > offtab or lurking around <br>
 
   FUUCCKK THIS IS WORSE THAN THE LAST TIME but okay its fine bruh im handing this formatting shit to Future Cappy 😂😂😂 <br>
   hi im future cappy and you forgot to put one of your reading disasbilities you fucking dumbass past cappy
+
+  i removed the cool typing thing ill put it back soon but yummy cupcake ymmyyy
  
   </details>
 

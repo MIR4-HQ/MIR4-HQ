@@ -15,9 +15,20 @@
     </tr>
   </table> 
  </div>
+ 
+<div align="center"> 
+  
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Eagle+Lake&size=16&duration=2001&pause=1000&color=AE2F2F&repeat=false&width=435&lines=The+rush.;...+Of+blood%3F;You+want%3F;To+get+under+my+skin.;I+know%2C;...+I'm+scared.;But+you'll+take+care+of+me!;%5E_%5E)](https://git.io/typing-svg) </div>
 
-  <div align="center"> cappy / candie 's the name (●'◡'●) </div>
+  <div align="center"> 
+    
+  $\color{#ebd2ab}\textsf{　cappy /}$ $\color{#ebd2ab}\textsf{candie 's }$ $\color{#e8b88b}\textsf{　the name }$ $\color{#edb085}\textsf{　(●'◡'●) }$ 
+    
+  </div>
 
+
+
+<div align="center">
   <details>
   <summary> $\color{#D23E67FF}\textsf{  　　BYI  　　}$ </summary>
     
@@ -30,6 +41,8 @@ whether i be extroverted/introverted i get nervous SUPER duper easily... <br>
    -  if u see me chatting w my friends PLS feel free to int that's the only time i wont be awkward asf <br>
   - but for real just be normal is all i ask for. basic dni criteria n pls dont make super duper sexual jokes. <br>
   </details>
+
+   </div>
 
 
   <details>
@@ -73,7 +86,3 @@ im greedy asf and i love ALL the ships. like bruh if youre gonna come up to me a
   hi im future cappy and you forgot to put one of your reading disasbilities you fucking dumbass past cappy
 
   ![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg) <img width="200" height="200" alt="caption" src="https://github.com/user-attachments/assets/12cf16c8-51d2-4f7a-be5a-8e52e6bcf930" />
-
-  
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Eagle+Lake&size=16&duration=2001&pause=1000&color=AE2F2F&repeat=false&width=435&lines=The+rush.;...+Of+blood%3F;You+want%3F;To+get+under+my+skin.;I+know%2C;...+I'm+scared.;But+you'll+take+care+of+me!;%5E_%5E)](https://git.io/typing-svg)

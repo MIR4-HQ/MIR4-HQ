@@ -61,6 +61,8 @@ im greedy asf and i love ALL the ships. like bruh if youre gonna come up to me a
 
   <details>
   <summary> $\color{#D23E67FF}\textsf{yap cornenr}$ </summary>
+
+  this is more of a "im placing stuff here until i finish the other sections" thingy but ykow who cares
     
 status: away > my usual status | busy > offtab or lurking around <br>
   if i dont respond in a milisecond whisper me!! <br>
@@ -74,10 +76,15 @@ status: away > my usual status | busy > offtab or lurking around <br>
  if u dont like doubles sorry i dont switch from red. also psl dont assume im a fictkin i genuinely just dont have any other good skin that im proud of lOL
 
  see me with a loser with a discord linked somethingn along the lines of lulu thats my loser s/o who is also the main reason i play this dumb gmame
- 
-  </details>
- 
+
   FUUCCKK THIS IS WORSE THAN THE LAST TIME but okay its fine bruh im handing this formatting shit to Future Cappy 😂😂😂 <br>
   hi im future cappy and you forgot to put one of your reading disasbilities you fucking dumbass past cappy
+ 
+  </details>
 
-  ![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg) <img width="200" height="200" alt="caption" src="https://github.com/user-attachments/assets/12cf16c8-51d2-4f7a-be5a-8e52e6bcf930" />
+
+![wawa!](https://file.garden/alyQLjsPPBIhyNXM/tumblr_91dbe5eb2667f136dc04cf80cf1bff1c_89afcca5_75.webp)
+![wawa](https://file.garden/alyQLjsPPBIhyNXM/tumblr_fa74f8fdf0c3a4986dad12f0610aca27_f017fefb_75.webp)
+![wawa](https://file.garden/alyQLjsPPBIhyNXM/tumblr_289bf57b3e461d869e64cfe7562179d1_7c4aa22f_250.gif)
+
+  ![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg) <img width="200" height="200" alt="caption" src="https://github.com/user-attachments/assets/12cf16c8-51d2-4f7a-be5a-8e52e6bcf930" /> <img width="200" height="36" alt="image" src="https://github.com/user-attachments/assets/b4be1e38-b688-4ce3-8de4-3318af83ea5d" />

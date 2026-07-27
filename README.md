@@ -12,7 +12,7 @@
 
   wooww wip hi friends im cappy btw! (or candie) <br>
   i LOVE C+H doesn't matter who you are #ComeHere. <br>
-  user has severe social debuffs from birth & is Just A Guy.
+  user has severe social debuffs from birth & is Just A Guy. diagnosed with terminal chronically offlineness
 
   <details>
   <summary> $\color{#D23E67FF}\textsf{  　　BYI  　　}$ </summary>

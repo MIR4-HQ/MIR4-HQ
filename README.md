@@ -24,6 +24,14 @@
    </div>
 
  ---
+<div align="center">
+   
+![purps](https://file.garden/alyQLjsPPBIhyNXM/tumblr_91dbe5eb2667f136dc04cf80cf1bff1c_89afcca5_75.webp)
+![greenie](https://file.garden/alyQLjsPPBIhyNXM/tumblr_fa74f8fdf0c3a4986dad12f0610aca27_f017fefb_75.webp)
+![cyaner](https://file.garden/alyQLjsPPBIhyNXM/tumblr_23de4dfe2ac5d2a3c3817fd3945caae6_942fd584_75.webp)
+![black](https://file.garden/alyQLjsPPBIhyNXM/tumblr_c304c156ea6579d35cbc2d82c5e53636_1a333cc9_75.webp)
+
+   </div>
 
   <details>
   <summary> $\color{#D23E67FF}\textsf{  　　ships or wtv  　　}$ </summary>
@@ -70,8 +78,6 @@ status: away > my usual status | busy > offtab or lurking around <br>
   </details>
 
 
-![wawa!](https://file.garden/alyQLjsPPBIhyNXM/tumblr_91dbe5eb2667f136dc04cf80cf1bff1c_89afcca5_75.webp)
-![wawa](https://file.garden/alyQLjsPPBIhyNXM/tumblr_fa74f8fdf0c3a4986dad12f0610aca27_f017fefb_75.webp)
 ![wawa](https://file.garden/alyQLjsPPBIhyNXM/tumblr_289bf57b3e461d869e64cfe7562179d1_7c4aa22f_250.gif)
 ![wawa](https://file.garden/alyQLjsPPBIhyNXM/tumblr_5e2be831ed6aa86b2cc287dd300566ce_e960c036_100.webp)
 

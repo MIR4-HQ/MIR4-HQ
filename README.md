@@ -1,5 +1,4 @@
 
-
 <div align="right"> 
   
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Eagle+Lake&size=16&duration=2000&pause=1000&color=DF428D&repeat=false&width=435&lines=The+rush.;Of+blood.;...+I+want.;To+get+under+your+skin.;I+know%2C;You're+scared.;But+I'll+take+care+of+you.;-_-)](https://git.io/typing-svg) </div>
@@ -20,11 +19,14 @@
   
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Eagle+Lake&size=16&duration=2001&pause=1000&color=AE2F2F&repeat=false&width=435&lines=The+rush.;...+Of+blood%3F;You+want%3F;To+get+under+my+skin.;I+know%2C;...+I'm+scared.;But+you'll+take+care+of+me!;%5E_%5E)](https://git.io/typing-svg) </div>
 
+   ---
+
   <div align="center"> 
+
+  ![](https://file.garden/alyQLjsPPBIhyNXM/ezgif-81cfb36ace7871a9.png)
     
   $\color{#ebd2ab}\textsf{　cappy /}$ $\color{#e6c7a1}\textsf{candie 's }$ $\color{#e8b88b}\textsf{　the name }$ $\color{#edb085}\textsf{　(●'◡'●) }$ <br>
 
-    
   </div>
 
 <div align="center">
@@ -38,7 +40,11 @@
 
   </details>
 
+![](https://file.garden/alyQLjsPPBIhyNXM/ezgif-84e2c6d11cc43951.png)
+
    </div>
+
+ ---
 
   <details>
   <summary> $\color{#D23E67FF}\textsf{  　　ships or wtv  　　}$ </summary>
@@ -86,5 +92,6 @@ status: away > my usual status | busy > offtab or lurking around <br>
 ![wawa!](https://file.garden/alyQLjsPPBIhyNXM/tumblr_91dbe5eb2667f136dc04cf80cf1bff1c_89afcca5_75.webp)
 ![wawa](https://file.garden/alyQLjsPPBIhyNXM/tumblr_fa74f8fdf0c3a4986dad12f0610aca27_f017fefb_75.webp)
 ![wawa](https://file.garden/alyQLjsPPBIhyNXM/tumblr_289bf57b3e461d869e64cfe7562179d1_7c4aa22f_250.gif)
+![wawa](https://file.garden/alyQLjsPPBIhyNXM/tumblr_5e2be831ed6aa86b2cc287dd300566ce_e960c036_100.webp)
 
   ![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg) <img width="200" height="200" alt="caption" src="https://github.com/user-attachments/assets/12cf16c8-51d2-4f7a-be5a-8e52e6bcf930" /> <img width="200" height="36" alt="image" src="https://github.com/user-attachments/assets/b4be1e38-b688-4ce3-8de4-3318af83ea5d" />

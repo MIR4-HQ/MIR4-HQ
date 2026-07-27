@@ -8,8 +8,8 @@
   <table>
     <tr>
       <td>
-   $\color{#AE2F2FFF}\textsf{　Why don't}$ $\color{#C33E55FF}\textsf{you trust}$ $\color{#D23E67FF}\textsf{me?  　　}$    <br>
-       $\color{#AE2F2FFF}\textsf{　Why don't}$ $\color{#C33E55FF}\textsf{you trust}$ $\color{#D23E67FF}\textsf{me?}$
+   $\color{#AE2F2FFF}\textsf{　And I know}$ $\color{#C33E55FF}\textsf{that I'm not}$ $\color{#D23E67FF}\textsf{good.  　　}$    <br>
+       $\color{#C33E55FF}\textsf{　I'm never gonna}$ $\color{#D23E67FF}\textsf{treat you}$ $\color{#C33E55FF}\textsf{like i should.}$ <br>
         <br>
       </td>
     </tr>

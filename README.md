@@ -24,12 +24,12 @@
    </div>
 
  ---
+
+wip btw also the formatting is messed up on mobile erm
+ 
 <div align="center">
    
-![purps](https://file.garden/alyQLjsPPBIhyNXM/tumblr_91dbe5eb2667f136dc04cf80cf1bff1c_89afcca5_75.webp)
-![greenie](https://file.garden/alyQLjsPPBIhyNXM/tumblr_fa74f8fdf0c3a4986dad12f0610aca27_f017fefb_75.webp)
-![cyaner](https://file.garden/alyQLjsPPBIhyNXM/tumblr_23de4dfe2ac5d2a3c3817fd3945caae6_942fd584_75.webp)
-![black](https://file.garden/alyQLjsPPBIhyNXM/tumblr_c304c156ea6579d35cbc2d82c5e53636_1a333cc9_75.webp)
+![purps](https://file.garden/alyQLjsPPBIhyNXM/tumblr_91dbe5eb2667f136dc04cf80cf1bff1c_89afcca5_75.webp) ![greenie](https://file.garden/alyQLjsPPBIhyNXM/tumblr_fa74f8fdf0c3a4986dad12f0610aca27_f017fefb_75.webp) ![cyaner](https://file.garden/alyQLjsPPBIhyNXM/tumblr_23de4dfe2ac5d2a3c3817fd3945caae6_942fd584_75.webp) ![black](https://file.garden/alyQLjsPPBIhyNXM/tumblr_c304c156ea6579d35cbc2d82c5e53636_1a333cc9_75.webp)
 
    </div>
 

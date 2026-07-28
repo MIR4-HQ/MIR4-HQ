@@ -118,5 +118,5 @@ status: away > my usual status | busy > offtab or lurking around <br>
 
   ![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg) <img width="200" height="200" alt="caption" src="https://github.com/user-attachments/assets/12cf16c8-51d2-4f7a-be5a-8e52e6bcf930" /> <img width="200" height="36" alt="image" src="https://github.com/user-attachments/assets/b4be1e38-b688-4ce3-8de4-3318af83ea5d" />
 
-  fyi none of the images i use are mine cause bro i dont have enough attention span for that
+  fyi none of the images i use are mine (except for the lock in gif) cause bro i dont have enough attention span for that
  

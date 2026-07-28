@@ -44,7 +44,7 @@
     <tr>
       <td>  
     $\color{#ebd2ab}\textsf{　Paradise has}$ $\color{#e6c7a1}\textsf{got a}$ $\color{#e8b88b}\textsf{spot}$ $\color{#e38464}\textsf{for}$ $\color{#e3685d}\textsf{me. }$ <br>
-   $\color{#e8b88b}\textsf{Flawless}$ $\color{#f0a17f}\textsf{to}$ $\color{#e38464}\textsf{all}$ $\color{#e3685d}\textsf{I }$ $\color{#e38464}\textsf{need}$ $\color{#f0a17f}\textsf{to}$
+   $\color{#e8b88b}\textsf{Flawless}$ $\color{#f0a17f}\textsf{is}$ $\color{#e38464}\textsf{all}$ $\color{#e3685d}\textsf{I }$ $\color{#e38464}\textsf{need}$ $\color{#f0a17f}\textsf{to}$
  $\color{#e8b88b}\textsf{be!}$
       </td>
     </tr>

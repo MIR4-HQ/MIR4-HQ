@@ -57,7 +57,7 @@
 
  <div align="center">
     
-![wawa](https://file.garden/alyQLjsPPBIhyNXM/tumblr_289bf57b3e461d869e64cfe7562179d1_7c4aa22f_250.gif)
+![wawa](https://file.garden/alyQLjsPPBIhyNXM/tumblr_289bf57b3e461d869e64cfe7562179d1_7c4aa22f_250.gif) <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/098b405a-d28a-4889-b384-c9d01f496cf4" />
  <div align="center">
     
   <details>
@@ -79,6 +79,9 @@ im greedy asf and i love ALL the ships. like bruh if youre gonna come up to me a
     GO MY POLYSKELD❤️❤️❤️ <br>
    im too lazy to make the font color different 
   </details>
+
+  ![https://www.tumblr.com/zresp/821990144098893824/captain-red-shiny-buttons](https://file.garden/alyQLjsPPBIhyNXM/tumblr_5e2be831ed6aa86b2cc287dd300566ce_e960c036_100.webp)
+
  
 <div align="center">
    
@@ -108,9 +111,9 @@ status: away > my usual status | busy > offtab or lurking around <br>
   hi im future cappy and you forgot to put one of your reading disasbilities you fucking dumbass past cappy
 
   i removed the cool typing thing ill put it back soon but yummy cupcake ymmyyy
+
+  i finished it who cheered
  
   </details>
-
-![wawa](https://file.garden/alyQLjsPPBIhyNXM/tumblr_5e2be831ed6aa86b2cc287dd300566ce_e960c036_100.webp)
 
   ![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg) <img width="200" height="200" alt="caption" src="https://github.com/user-attachments/assets/12cf16c8-51d2-4f7a-be5a-8e52e6bcf930" /> <img width="200" height="36" alt="image" src="https://github.com/user-attachments/assets/b4be1e38-b688-4ce3-8de4-3318af83ea5d" />

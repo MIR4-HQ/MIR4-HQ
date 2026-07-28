@@ -65,7 +65,8 @@
     
  $\color{#ebd2ab}\textsf{ my main one is, you can guess... among us. the show, rodamrix, remnant, on guard, so on n so forth!!}$ <br>
  $\color{#e3bf94}\textsf{mcyt, but mainly in the mcrp scene. ish's state smp, DECAYED AND DECREPIT😍😍😍}$ <br>
- $\color{#e8b88b}\textsf{sorry im a loser i have like 1 hyperfix and thats it but i'm aware of everything popular doe (mostly)}$ <br>
+ $\color{#e8b88b}\textsf{roblox to some extent but like not really big on it... all i do is play flee the facility and sewh bro}$ <br>
+   $\color{#edb085}\textsf{sorry im a loser i have like 1 hyperfix and thats it but i'm aware of everything popular doe (mostly)}$
 
   </details>
 

@@ -21,7 +21,7 @@
   </details>
 
    <details>
-  <summary> $\color{#e3685d}\textsf{  　　BOUNDARIES  　　}$ </summary>
+  <summary> $\color{#d9514c}\textsf{  　　BOUNDARIES  　　}$ </summary>
     
  $\color{#ebd2ab}\textsf{ basic dni criteria wahoo!}$ <br>
  $\color{#e3bf94}\textsf{user is a minor (AND I HAVE A S/O) so pls tone down sexual jokes n such i get uncomf}$ <br>
@@ -30,6 +30,7 @@
 
   </details>
 
+![](https://file.garden/alyQLjsPPBIhyNXM/ezgif-42ae2dedb0aa3aae.png) 
 
 ![](https://file.garden/alyQLjsPPBIhyNXM/ezgif-84e2c6d11cc43951.png)
 
@@ -37,7 +38,27 @@
 
  ---
 
-wip btw also the formatting is messed up on mobile erm
+
+ <div align="center">
+  <table>
+    <tr>
+      <td>  
+    $\color{#ebd2ab}\textsf{　Paradise has}$ $\color{#e6c7a1}\textsf{got a}$ $\color{#e8b88b}\textsf{spot}$ $\color{#e38464}\textsf{for}$ $\color{#e3685d}\textsf{me. }$ <br>
+   $\color{#e8b88b}\textsf{Flawless}$ $\color{#f0a17f}\textsf{to}$ $\color{#e38464}\textsf{all}$ $\color{#e3685d}\textsf{I }$ $\color{#e38464}\textsf{need}$ $\color{#f0a17f}\textsf{to}$
+ $\color{#e8b88b}\textsf{be!}$
+      </td>
+    </tr>
+  </table> 
+ </div>
+ 
+<div align="center"> 
+
+![](https://file.garden/alyQLjsPPBIhyNXM/ezgif-42ae2dedb0aa3aae.png)![](https://file.garden/alyQLjsPPBIhyNXM/ezgif-42ae2dedb0aa3aae.png) 
+
+
+
+wip btw also the formatting is messed up on mobile erm <br>
+im so frigging hungry i want a burger sos bad
  
 <div align="center">
    

@@ -24,7 +24,7 @@
   <summary> $\color{#e3685d}\textsf{  　　BOUNDARIES  　　}$ </summary>
     
  $\color{#ebd2ab}\textsf{ basic dni criteria wahoo!}$ <br>
- $\color{#e3bf94}\textsf{user is a minor so pls tone down sexual jokes n such i get uncomf}$ <br>
+ $\color{#e3bf94}\textsf{user is a minor (AND I HAVE A S/O) so pls tone down sexual jokes n such i get uncomf}$ <br>
  $\color{#e8b88b}\textsf{pls dont use hard to read fonts especially in normal convo, i struggle to read as is ;-;}$ <br>
   $\color{#edb085}\textsf{but fr just be normal that's like it}$
 

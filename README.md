@@ -16,7 +16,8 @@
  [omniverted](https://health.clevelandclinic.org/omnivert-vs-ambivert) $\color{#ebd2ab}\textsf{ n' diagnosed w/　}$ [mild dyslexia](https://my.clevelandclinic.org/health/diseases/6005-dyslexia) $\color{#ebd2ab}\textsf{ (we do be working on it tho!!)　}$ <br>
  $\color{#e3bf94}\textsf{user has weird typing quirks}$ #likeThis $\color{#e3bf94}\textsf{but its mainly for funsies :] }$ <br>
  $\color{#e8b88b}\textsf{　i ragebait/tease, i use caps a lot, act IC sometimes, so plsplsPLEASE tell me if you need tonetags}$ <br>
-  $\color{#edb085}\textsf{ im very friendly so don't be shy cause I'M the shy one here ok..? ok! hashtag BMF!! }$
+  $\color{#edb085}\textsf{ im very friendly so don't be shy cause I'M the shy one here ok..? ok! hashtag BMF!! }$ <br>
+    $\color{#edb085}\textsf{ i get loud wen im comfy :] i just struggle with intiating first ;; }$
 
   </details>
 

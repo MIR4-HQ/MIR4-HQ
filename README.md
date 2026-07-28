@@ -55,35 +55,36 @@
 
 ![](https://file.garden/alyQLjsPPBIhyNXM/ezgif-42ae2dedb0aa3aae.png)![](https://file.garden/alyQLjsPPBIhyNXM/ezgif-42ae2dedb0aa3aae.png) 
 
-
-
-wip btw also the formatting is messed up on mobile erm <br>
-im so frigging hungry i want a burger sos bad
- 
-<div align="center">
-   
-![purps](https://file.garden/alyQLjsPPBIhyNXM/tumblr_91dbe5eb2667f136dc04cf80cf1bff1c_89afcca5_75.webp) ![greenie](https://file.garden/alyQLjsPPBIhyNXM/tumblr_fa74f8fdf0c3a4986dad12f0610aca27_f017fefb_75.webp) ![cyaner](https://file.garden/alyQLjsPPBIhyNXM/tumblr_23de4dfe2ac5d2a3c3817fd3945caae6_942fd584_75.webp) ![black](https://file.garden/alyQLjsPPBIhyNXM/tumblr_c304c156ea6579d35cbc2d82c5e53636_1a333cc9_75.webp)
-
-   </div>
-
+ <div align="center">
+    
+![wawa](https://file.garden/alyQLjsPPBIhyNXM/tumblr_289bf57b3e461d869e64cfe7562179d1_7c4aa22f_250.gif)
+ <div align="center">
+    
   <details>
-  <summary> $\color{#D23E67FF}\textsf{  　　ships or wtv  　　}$ </summary>
+  <summary> $\color{#d9514c}\textsf{  　　FANDOMS  　　}$ </summary>
+    
+ $\color{#ebd2ab}\textsf{ my main one is, you can guess... among us. the show, rodamrix, remnant, on guard, so on n so forth!!}$ <br>
+ $\color{#e3bf94}\textsf{mcyt, but mainly in the mcrp scene. ish's state smp, DECAYED AND DECREPIT😍😍😍}$ <br>
+ $\color{#e8b88b}\textsf{sorry im a loser i have like 1 hyperfix and thats it but i'm aware of everything popular doe (mostly)}$ <br>
+
+  </details>
+
+<details>
+ <summary> $\color{#d9514c}\textsf{  　　SHIPS  　　}$ </summary>
     allshipper EXCEPT. EXCEPT! FOR ILLEGAL ONES. <br>
 if you couldnt tell i love $\color{#D23E67FF}\textsf{miracaptain (redXpink)}$ <br>
 my 2nd favorite is polyinterns (redgreenpurple) & gemtain (cyanred) & the og camtain (purplered) <br>
 im greedy asf and i love ALL the ships. like bruh if youre gonna come up to me and be like idk, orange green rainbow or whatever and start kissing me wow ill DO it. <br>
     btw my favorite rarepair is winecaptain yeah yeah "shippers be shipping whatever' ITS FOR FUN 😂 <br>
     GO MY POLYSKELD❤️❤️❤️ <br>
+   im too lazy to make the font color different 
   </details>
+ 
+<div align="center">
+   
+![purps](https://file.garden/alyQLjsPPBIhyNXM/tumblr_91dbe5eb2667f136dc04cf80cf1bff1c_89afcca5_75.webp) ![greenie](https://file.garden/alyQLjsPPBIhyNXM/tumblr_fa74f8fdf0c3a4986dad12f0610aca27_f017fefb_75.webp) ![cyaner](https://file.garden/alyQLjsPPBIhyNXM/tumblr_23de4dfe2ac5d2a3c3817fd3945caae6_942fd584_75.webp) ![black](https://file.garden/alyQLjsPPBIhyNXM/tumblr_c304c156ea6579d35cbc2d82c5e53636_1a333cc9_75.webp)
 
-
-  <details>
-  <summary> $\color{#D23E67FF}\textsf{fandoomss}$ </summary>
-    mainly among us (show, rodamrix, on guard, remnant, yadayadyada you get it) <br>
-    mcyt but mainly mcrp, ish's state smp😍😍😍😍 DECAYED AND DECREPIT😍😍😍 <br>
-    sorry im a loser i have like 1 hyperfix and thats it but i'm aware of everything popular doe (mostly)
-  </details>
-
+   </div>
 
   <details>
   <summary> $\color{#D23E67FF}\textsf{yap cornenr}$ </summary>
@@ -110,8 +111,6 @@ status: away > my usual status | busy > offtab or lurking around <br>
  
   </details>
 
-
-![wawa](https://file.garden/alyQLjsPPBIhyNXM/tumblr_289bf57b3e461d869e64cfe7562179d1_7c4aa22f_250.gif)
 ![wawa](https://file.garden/alyQLjsPPBIhyNXM/tumblr_5e2be831ed6aa86b2cc287dd300566ce_e960c036_100.webp)
 
   ![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg) <img width="200" height="200" alt="caption" src="https://github.com/user-attachments/assets/12cf16c8-51d2-4f7a-be5a-8e52e6bcf930" /> <img width="200" height="36" alt="image" src="https://github.com/user-attachments/assets/b4be1e38-b688-4ce3-8de4-3318af83ea5d" />

@@ -84,6 +84,8 @@ im greedy asf and i love ALL the ships. like bruh if youre gonna come up to me a
    im too lazy to make the font color different 
   </details>
 
+ !! all of my skins have a " * " at the start !!
+
   ![https://www.tumblr.com/zresp/821990144098893824/captain-red-shiny-buttons](https://file.garden/alyQLjsPPBIhyNXM/tumblr_5e2be831ed6aa86b2cc287dd300566ce_e960c036_100.webp)
 
  

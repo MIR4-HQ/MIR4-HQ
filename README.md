@@ -29,6 +29,7 @@
  $\color{#e3bf94}\textsf{user is a minor (AND I HAVE A S/O) so pls tone down sexual jokes n such i get uncomf}$ <br>
  $\color{#e8b88b}\textsf{pls dont use hard to read fonts especially in normal convo, i struggle to read as is ;-;}$ <br>
   $\color{#edb085}\textsf{but fr just be normal that's like it, idgaf about doubles you like red i like red LETS BE FRIENDS YAAAY!!!}$
+    $\color{#f0a17f}\textsf{ if you recognize my old skins NO you doNot. }$ <br>
 
   </details>
 

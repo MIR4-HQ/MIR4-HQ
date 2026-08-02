@@ -81,6 +81,10 @@ my 2nd favorite is polyinterns (redgreenpurple) & gemtain (cyanred) & the og cam
 im greedy asf and i love ALL the ships. like bruh if youre gonna come up to me and be like idk, orange green rainbow or whatever and start kissing me wow ill DO it. <br>
     btw my favorite rarepair is winecaptain yeah yeah "shippers be shipping whatever' ITS FOR FUN 😂 <br>
     GO MY POLYSKELD❤️❤️❤️ <br>
+
+im always going to be ok with ship rps :] as long as it doesnt go 18+ !!! or if i directly state that i dont want to!!! <br>
+
+   
    im too lazy to make the font color different 
   </details>
 

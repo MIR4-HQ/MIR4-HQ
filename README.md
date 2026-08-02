@@ -82,7 +82,8 @@ im greedy asf and i love ALL the ships. like bruh if youre gonna come up to me a
     btw my favorite rarepair is winecaptain yeah yeah "shippers be shipping whatever' ITS FOR FUN 😂 <br>
     GO MY POLYSKELD❤️❤️❤️ <br>
 
-im always going to be ok with ship rps :] as long as it doesnt go 18+ !!! or if i directly state that i dont want to!!! <br>
+im always going to be ok with ship rps/rrps :] as long as it doesnt go 18+ !!! or if i directly state that i dont want to!!! <br>
+with that being said i will never do ship rps unless you start it first ok? ok. <br>
 
    
    im too lazy to make the font color different 

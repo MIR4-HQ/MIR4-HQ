@@ -115,5 +115,5 @@ im such a big back but im also so picky brah I Can't Do anything in this cruuel 
 
   <img width="430" height="120" alt="Screenshot 2026-07-29 042303" src="https://github.com/user-attachments/assets/24e2a5c1-1e79-47e7-9688-965ef1d84ddf" />
 sewh aus servers <3 <br>
-  fyi none of the artwork i use r mine cause bro i dont have enough attention span for that
+  fyi none of the artwork i use r mine cause bro i dont have enough attention span for that (except for the pfp thats my cool art)
  

@@ -106,7 +106,8 @@ i cleared it ok? ok. <br>
 funfact i stayed up for 2 days without sleeping and i got really sick afterwards. i do not recommend... but i still sstay up abnormally long hours just cause of school #sendHelp! <br>
      adding onto that ive fallen asleep on a lot of stuff. uummm ive slept inn the floor in public once or twice and a lot of times in my own house This School Thing Gets Serious... <br>
 im such a big back but im also so picky brah I Can't Do anything in this cruuel World. i once naerly ate a insect thingkinf it was food good hting i dropped it doe <br>
-"yo have c+h but why dint u do it when others have it in their name/abotu me!!" IM  A SHY😭😭😭😭😭LOSRER😭😭😭😭😭😭😭😭😭😭😭😭
+"yo have c+h but why dint u do it when others have it in their name/abotu me!!" IM  A SHY😭😭😭😭😭LOSRER😭😭😭😭😭😭😭😭😭😭😭😭 <br>
+50k+ hours on ftf Holy Fucking Shit.
   
  
   </details>

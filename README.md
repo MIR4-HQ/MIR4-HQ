@@ -82,6 +82,7 @@ if you couldnt tell i love $\color{#D23E67FF}\textsf{miracaptain (redXpink)}$ <b
 my 2nd favorite is polyinterns (redgreenpurple) & gemtain (cyanred) & the og camtain (purplered) <br>
 im greedy asf and i love ALL the ships. like bruh if youre gonna come up to me and be like idk, orange green rainbow or whatever and start kissing me wow ill DO it. <br>
     btw my favorite rarepair is winecaptain yeah yeah "shippers be shipping whatever' ITS FOR FUN 😂 <br>
+   capdoc might be becoming one of my favs #OuhhShiii <br>
     GO MY POLYSKELD❤️❤️❤️ <br>
 
 im always going to be ok with ship rps/rrps :] as long as it doesnt go 18+ !!! or if i directly state that i dont want to!!! <br>

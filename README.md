@@ -5,7 +5,7 @@
   ![](https://file.garden/alyQLjsPPBIhyNXM/ezgif-81cfb36ace7871a9.png)
     
   $\color{#ebd2ab}\textsf{　cappy /}$ $\color{#e6c7a1}\textsf{candie 's }$ $\color{#e8b88b}\textsf{　the name }$ $\color{#edb085}\textsf{　(●'◡'●) }$ <br>
-  $\color{#edb085}\textsf{ friendliest chud!! C+H ME! }$
+  $\color{#edb085}\textsf{ friendliest chud!! BMF OR C+H ME! }$
 
   </div>
 

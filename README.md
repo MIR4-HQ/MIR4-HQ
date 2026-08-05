@@ -101,6 +101,20 @@ with that being said i will never do ship rps unless you start it first ok? ok. 
    
 ![purps](https://file.garden/alyQLjsPPBIhyNXM/tumblr_91dbe5eb2667f136dc04cf80cf1bff1c_89afcca5_75.webp) ![greenie](https://file.garden/alyQLjsPPBIhyNXM/tumblr_fa74f8fdf0c3a4986dad12f0610aca27_f017fefb_75.webp) ![cyaner](https://file.garden/alyQLjsPPBIhyNXM/tumblr_23de4dfe2ac5d2a3c3817fd3945caae6_942fd584_75.webp) ![black](https://file.garden/alyQLjsPPBIhyNXM/tumblr_c304c156ea6579d35cbc2d82c5e53636_1a333cc9_75.webp)
 
+ <div align="center">
+  <table>
+    <tr>
+      <td>  
+    $\color{#ebd2ab}\textsf{　But}$ $\color{#e6c7a1}\textsf{I don't}$ $\color{#e8b88b}\textsf{care}$ $\color{#e38464}\textsf{if}$ $\color{#e3685d}\textsf{i}$ <br>
+   $\color{#e8b88b}\textsf{don't}$ $\color{#f0a17f}\textsf{live}$ $\color{#e38464}\textsf{to}$ $\color{#e3685d}\textsf{see}$ $\color{#e38464}\textsf{another}$ $\color{#f0a17f}\textsf{day}$
+ $\color{#e8b88b}\textsf{oh,}$ <br>
+         $\color{#e3685d}\textsf{     I}$ $\color{#e35d85}\textsf{love}$ $\color{#e05e83}\textsf{you}$ $\color{#d64d7f}\textsf{in}$ $\color{#e05e83}\textsf{the}$ $\color{#e87998}\textsf{worst}$
+ $\color{#e88b99}\textsf{way.}$
+      </td>
+    </tr>
+  </table> 
+ </div>
+
    </div>
 
   <details>

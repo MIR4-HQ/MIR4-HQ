@@ -107,7 +107,8 @@ funfact i stayed up for 2 days without sleeping and i got really sick afterwards
      adding onto that ive fallen asleep on a lot of stuff. uummm ive slept inn the floor in public once or twice and a lot of times in my own house This School Thing Gets Serious... <br>
 im such a big back but im also so picky brah I Can't Do anything in this cruuel World. i once naerly ate a insect thingkinf it was food good hting i dropped it doe <br>
 "yo have c+h but why dint u do it when others have it in their name/abotu me!!" IM  A SHY😭😭😭😭😭LOSRER😭😭😭😭😭😭😭😭😭😭😭😭 <br>
-50k+ hours on ftf Holy Fucking Shit.
+50k+ hours on ftf Holy Fucking Shit. <br>
+august is not my month bruh i got sick at the start of the month, still sick, voice hoarse, crashing out everyday over school, passing out when i get home, AND My Glasses Are broken. :joy: BOIII😂😂😂😂 <br>
   
  
   </details>

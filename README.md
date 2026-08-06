@@ -128,6 +128,8 @@ im such a big back but im also so picky brah I Can't Do anything in this cruuel 
 "yo have c+h but why dint u do it when others have it in their name/abotu me!!" IM  A SHY😭😭😭😭😭LOSRER😭😭😭😭😭😭😭😭😭😭😭😭 <br>
 50k+ hours on ftf Holy Fucking Shit. <br>
 august is not my month bruh i got sick at the start of the month, still sick, voice hoarse, crashing out everyday over school, passing out when i get home, AND My Glasses Are broken. :joy: BOIII😂😂😂😂 <br>
+youknow it really sucks tob e a social butterfly but struggle t o start conversation i could run my mouth for the etnire daayyyy and ill be a sitting duck cause im nervous 24/7 <br>
+i think i need more friends on this damn game LOL eueueue everyone i meet are europeans/americans <br>
   
  
   </details>

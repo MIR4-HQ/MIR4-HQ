@@ -19,6 +19,8 @@
   $\color{#edb085}\textsf{ im very friendly so don't be shy cause I'M the shy one here ok..? ok! hashtag BMF!! }$ <br>
     $\color{#f0a17f}\textsf{ 90percent of the time i'll be in offline mode i swear i didnt unfriend sob }$ <br>
     $\color{#e38464}\textsf{ i get loud wen im comfy :] i just struggle with intiating first ;; }$ <br>
+ $\color{#e38464}\textsf{ i play on n off due to school }$ <br>
+
 
    even if you w2i i'm blind as a bat and i WILl respond late😭 #MyBad
 

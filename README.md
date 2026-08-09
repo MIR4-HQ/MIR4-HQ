@@ -137,6 +137,9 @@ i think i need more friends on this damn game LOL eueueue everyone i meet are eu
   ![https://x.com/Callmemendy/status/2075333356053725653](https://file.garden/alyQLjsPPBIhyNXM/wawaw%20(1).jpg) <img width="200" height="200" alt="caption" src="https://github.com/user-attachments/assets/12cf16c8-51d2-4f7a-be5a-8e52e6bcf930" /> <img width="200" height="36" alt="image" src="https://github.com/user-attachments/assets/b4be1e38-b688-4ce3-8de4-3318af83ea5d" />
 
   <img width="430" height="120" alt="Screenshot 2026-07-29 042303" src="https://github.com/user-attachments/assets/24e2a5c1-1e79-47e7-9688-965ef1d84ddf" />
+
+  <img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/03547b56-5d0e-46d2-828d-f5a166fae9d8" />
+
 sewh aus servers <3 <br>
   fyi none of the artwork i use r mine cause bro i dont have enough attention span for that (except for the pfp thats my cool art)
  

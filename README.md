@@ -140,6 +140,9 @@ i think i need more friends on this damn game LOL eueueue everyone i meet are eu
 
   <img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/03547b56-5d0e-46d2-828d-f5a166fae9d8" />
 
+  <img width="400" height="215" alt="image" src="https://github.com/user-attachments/assets/e7e12468-b848-4b4a-9082-e22e3b12a4ad" />
+
+
 sewh aus servers <3 <br>
   fyi none of the artwork i use r mine cause bro i dont have enough attention span for that (except for the pfp thats my cool art)
  

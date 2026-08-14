@@ -82,6 +82,7 @@
  <summary> $\color{#d9514c}\textsf{  　　SHIPS  　　}$ </summary>
     allshipper EXCEPT. EXCEPT! FOR ILLEGAL ONES. <br>
 if you couldnt tell i love $\color{#D23E67FF}\textsf{miracaptain (redXpink)}$ <br>
+   tp tjphose who read synvergent before i get cancelled i do NOT ship syn!pink with syn! red. its my own interpretation of pink that i ship. ok.? ok. <br>
 my 2nd favorite is polyinterns (redgreenpurple) & gemtain (cyanred) & the og camtain (purplered) <br>
 im greedy asf and i love ALL the ships. like bruh if youre gonna come up to me and be like idk, orange green rainbow or whatever and start kissing me wow ill DO it. <br>
     btw my favorite rarepair is winecaptain yeah yeah "shippers be shipping whatever' ITS FOR FUN 😂 <br>

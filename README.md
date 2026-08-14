@@ -132,7 +132,8 @@ im such a big back but im also so picky brah I Can't Do anything in this cruuel 
 august is not my month bruh i got sick at the start of the month, still sick, voice hoarse, crashing out everyday over school, passing out when i get home, AND My Glasses Are broken. :joy: BOIII😂😂😂😂 <br>
 youknow it really sucks tob e a social butterfly but struggle t o start conversation i could run my mouth for the etnire daayyyy and ill be a sitting duck cause im nervous 24/7 <br>
 i think i need more friends on this damn game LOL eueueue everyone i meet are europeans/americans <br>
-  
+  im red if they were locked in (rushed my research proposal) (rushed my defense) (still came out ontop) <br>
+  probbaly cause i woke up at 3am and genuinely just opened my pc and started writing on google docs while having 20 tabs of references open <br>
  
   </details>
 

@@ -134,7 +134,8 @@ youknow it really sucks tob e a social butterfly but struggle t o start conversa
 i think i need more friends on this damn game LOL eueueue everyone i meet are europeans/americans <br>
   im red if they were locked in (rushed my research proposal) (rushed my defense) (still came out ontop) <br>
   probbaly cause i woke up at 3am and genuinely just opened my pc and started writing on google docs while having 20 tabs of references open <br>
-  <img width="300" height="165" alt="image" src="https://github.com/user-attachments/assets/d9542468-f2e6-4454-bdaa-e626ce2363a9" />
+  <img width="300" height="165" alt="image" src="https://github.com/user-attachments/assets/d9542468-f2e6-4454-bdaa-e626ce2363a9" /> <img width="102" height="102" alt="image" src="https://github.com/user-attachments/assets/df817f0c-ac9b-445d-b4aa-922fea6e92da" />
+
 
  
   </details>

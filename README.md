@@ -134,7 +134,10 @@ youknow it really sucks tob e a social butterfly but struggle t o start conversa
 i think i need more friends on this damn game LOL eueueue everyone i meet are europeans/americans <br>
   im red if they were locked in (rushed my research proposal) (rushed my defense) (still came out ontop) <br>
   probbaly cause i woke up at 3am and genuinely just opened my pc and started writing on google docs while having 20 tabs of references open <br>
-  <img width="300" height="165" alt="image" src="https://github.com/user-attachments/assets/d9542468-f2e6-4454-bdaa-e626ce2363a9" /> <img width="102" height="102" alt="image" src="https://github.com/user-attachments/assets/df817f0c-ac9b-445d-b4aa-922fea6e92da" />
+  <img width="300" height="165" alt="image" src="https://github.com/user-attachments/assets/d9542468-f2e6-4454-bdaa-e626ce2363a9" /> <img width="102" height="102" alt="image" src="https://github.com/user-attachments/assets/df817f0c-ac9b-445d-b4aa-922fea6e92da" /> <br>
+
+  my friends r pretty cool -> <img width="150" height="102" alt="image" src="https://github.com/user-attachments/assets/4252d2fe-3869-4a2f-8a5f-3956ec1b6b09" />
+
 
 
  
@@ -147,6 +150,7 @@ i think i need more friends on this damn game LOL eueueue everyone i meet are eu
   <img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/03547b56-5d0e-46d2-828d-f5a166fae9d8" />
 
   <img width="400" height="215" alt="image" src="https://github.com/user-attachments/assets/e7e12468-b848-4b4a-9082-e22e3b12a4ad" />
+
 
 
 sewh aus servers <3 <br>

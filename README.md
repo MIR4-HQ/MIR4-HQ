@@ -136,7 +136,11 @@ i think i need more friends on this damn game LOL eueueue everyone i meet are eu
   probbaly cause i woke up at 3am and genuinely just opened my pc and started writing on google docs while having 20 tabs of references open <br>
   <img width="300" height="165" alt="image" src="https://github.com/user-attachments/assets/d9542468-f2e6-4454-bdaa-e626ce2363a9" /> <img width="102" height="102" alt="image" src="https://github.com/user-attachments/assets/df817f0c-ac9b-445d-b4aa-922fea6e92da" /> <br>
 
-  my friends r pretty cool -> <img width="150" height="102" alt="image" src="https://github.com/user-attachments/assets/4252d2fe-3869-4a2f-8a5f-3956ec1b6b09" />
+  my friends r pretty cool -> <img width="150" height="102" alt="image" src="https://github.com/user-attachments/assets/4252d2fe-3869-4a2f-8a5f-3956ec1b6b09" /> <br>
+
+  i got so irritated trying to animate and i looked at my progress and thought to msyelf: "oh wow these look like visual novel sprites".... guess whos in the process of coding another game <br>
+  <img width="300" height="240" alt="image" src="https://github.com/user-attachments/assets/09153f20-8cb0-45b3-9cbe-7033d6ec02ad" /> this oc writing thing gets serious
+
 
 
 

@@ -43,7 +43,7 @@
 
    </div>
 
-   IA on weekdays
+   MOSTLY IA on weekdays ...
  ---
 
 

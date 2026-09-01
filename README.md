@@ -124,6 +124,7 @@ with that being said i will never do ship rps unless you start it first ok? ok. 
 
   <details>
   <summary> $\color{#D23E67FF}\textsf{yap cornenr}$ </summary>
+     <img width="574" height="202" alt="image" src="https://github.com/user-attachments/assets/3a537f5e-c09f-4469-832d-4bd79282a0d7" />
 i cleared it ok? ok. <br>
 funfact i stayed up for 2 days without sleeping and i got really sick afterwards. i do not recommend... but i still sstay up abnormally long hours just cause of school #sendHelp! <br>
      adding onto that ive fallen asleep on a lot of stuff. uummm ive slept inn the floor in public once or twice and a lot of times in my own house This School Thing Gets Serious... <br>

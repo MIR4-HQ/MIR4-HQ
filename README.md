@@ -43,7 +43,8 @@
 
    </div>
 
-   MOSTLY IA on weekdays ...
+   MOSTLY IA on weekdays ... <BR>
+   Highkey outdated but im too lazy to change it bro. check pronouns page omgg thanksies
  ---
 
 

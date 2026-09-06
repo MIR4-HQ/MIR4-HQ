@@ -21,6 +21,8 @@
     $\color{#e38464}\textsf{ i get loud wen im comfy :] i just struggle with intiating first ;; }$ <br>
  $\color{#e38464}\textsf{ i play on n off due to school }$ <br>
 
+   $\color{#8b85a3}\textsf{i'm not in the super bestest mental state due to irl reasons ;v; heavy emphasis please on "keep it lighthearted around me" :]}$ <br>
+
 
    even if you w2i i'm blind as a bat and i WILl respond late😭 #MyBad
 

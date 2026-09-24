@@ -8,6 +8,8 @@ i am omniverted chud!! i cna come off as a huge social butterfly then end up bei
 don't take this as an insult or anything PLEASE i do really want to be friends w/ people but im nervous 24/7 and takes a decent amount of time to get me social <br>
 im seriously locked in on school so you might see me every few weeks and disappear. opsie <br>
 
+whisper me if  i dont respond!! :[ i always respond to whispers unless im logging out for theday <BR>
+
 oh and i have dyslexia (we're working on it) (i just have a broken keyboard) <br>
 
 

@@ -35,6 +35,8 @@ all my favorite characters are fucking DEAD😭😭😭😭 DEAD IN THE WAY ILL 
 yes.... this is required fro teh github... obviously... <br>
 im so sleepppyyy all the time ... the discord ban gagve me areasson to messasge people i havent messaged in a long time LOL <br>
 
+someone told me that i acted similarly to a kicked puppy in a box on the side of the road and I have No idea how to feel about that <br>
+
   <details>
 <summary> $\color{#e3685d}\textsf{  　　my favs  　　}$ </summary>
   <details>
@@ -44,6 +46,8 @@ no like seriously. i don't know why i like flux and how he evolved into a comfor
 DaD flux was probably one of hte points htat made me really. really appreciate flux. im biased towards found family and protector figures and AAHHH M YHEART JUST HURTS SO BAD. mr flux decayed and decrepit, you are a walking contradiction and enigma. because tell me HW can someone be so selfish yet selfish? greedy yet giving? he's so loving yet so cold???? how he treats the hostel compared to, like, the quad or saps is crazy ASL it's like getting dunked with water. his scene's of him speaking softly to magic still make me want to shoot myself because ofwhat happened in s9-10 AAHHH HAHAHAHAHA HAHAH AHHAH AHAH im fine. <br>
 while wre talking about found family i do HC the conspiracy as a found family. okay booo me WHATEVER but seraphim and newkidss are literlalllyy twins look at their skins <br>
 in general statesmp is a huge comfort media for me. i used to be a saps fan before getting convverted into a flux fan. did u know that <br>
+
+decayed and decrepit fluix is so fuckinf heartbreaking FUCK I HATE DOOMED FOUND FAMILY FUCKKKKKKKKK<br>
 
   </details>
     <details>

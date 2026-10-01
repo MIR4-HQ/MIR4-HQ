@@ -25,7 +25,26 @@ oh and i have dyslexia (we're working on it) (i just have a broken keyboard whic
 ![wawa](https://file.garden/alyQLjsPPBIhyNXM/tumblr_289bf57b3e461d869e64cfe7562179d1_7c4aa22f_250.gif) <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/098b405a-d28a-4889-b384-c9d01f496cf4" />
  <div align="center">
 
+  <details>
+  <summary> $\color{#e3685d}\textsf{  　　moots  　　}$ </summary> <br>
+    hey i keep seeing people do this and obviously im included so /ij <br>
+    you are HEREBY considered a mutual because you are most likely in my PT friendslist... ok... we may not talk much but itss ok right guys rrigh (feel free to ask to remove/add) <br>
+    
+  @ATROP0SMACHINE <- this is my son <br>
+  @KURICIFER <- hi <br>
+  @wickedirene <br>
+  @finalhornet <br>
+  @cupiidshot <br>
+  @self-preservation8 <br>
+
+allm y other friends dont have ghub/dont play pt medkit newspawn sticker <br>
+shoutout nonghubbers: <br>
+@.lu <3 @.erie @.soap @.van @.snowbird @.adie @.zero @.erch @.astor @.lance @.sanat @.fluixarity <br>
+
+  </details>
+
 all my favorite characters are fucking DEAD😭😭😭😭 DEAD IN THE WAY ILL NEVER GET CANON MEDIA OF THEM EVER AGAIN 😭😭😭😭😭😭 <br>
+
 
  wip omg im so lazyyyy  <br> 
 @mrfluix this is me btw <br>

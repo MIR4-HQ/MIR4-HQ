@@ -53,6 +53,9 @@ all my favorite characters are fucking DEAD😭😭😭😭 DEAD IN THE WAY ILL 
  wip omg im so lazyyyy  <br> 
 @mrfluix this is me btw <br>
 
+<img width="402" height="502" alt="image" src="https://github.com/user-attachments/assets/3943297c-48e3-4004-9802-45a8bbb40d07" />
+
+
   <details>
 <summary> $\color{#e3685d}\textsf{  　　super duper required yap corner  　　}$ </summary>
 yes.... this is required fro teh github... obviously... <br>

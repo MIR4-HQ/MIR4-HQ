@@ -25,6 +25,10 @@ oh and i have dyslexia (we're working on it) (i just have a broken keyboard whic
 ![wawa](https://file.garden/alyQLjsPPBIhyNXM/tumblr_289bf57b3e461d869e64cfe7562179d1_7c4aa22f_250.gif) <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/098b405a-d28a-4889-b384-c9d01f496cf4" />
  <div align="center">
 
+ om cryinf im mainly inactive/just sitting around cause my wifi is actually so BAD Right now DDUE IM IN HELL <br>
+ <img width="116" height="117" alt="image" src="https://github.com/user-attachments/assets/b7063f9d-7b91-4437-acc4-e828cadac3d4" /> <br>
+
+
   <details>
   <summary> $\color{#e3685d}\textsf{  　　moots  　　}$ </summary> <br>
     hey i keep seeing people do this and obviously im included so /ij <br>

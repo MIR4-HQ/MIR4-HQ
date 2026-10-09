@@ -48,6 +48,9 @@ shoutout nonghubbers: <br>
   </details>
 
 all my favorite characters are fucking DEAD😭😭😭😭 DEAD IN THE WAY ILL NEVER GET CANON MEDIA OF THEM EVER AGAIN 😭😭😭😭😭😭 <br>
+mstly inactive cause *coguhs* my mc world <br>
+<img width="340" height="200" alt="image" src="https://github.com/user-attachments/assets/e1a3c8f1-c300-4eee-ab76-85be4c120a20" />
+
 
 
  wip omg im so lazyyyy  <br> 

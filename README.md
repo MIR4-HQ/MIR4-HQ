@@ -25,11 +25,7 @@ diagnosed dyslexia take it easy on me please this means no fancy fonts and havin
 <img width="250" height="100" alt="image" src="https://github.com/user-attachments/assets/d9440a02-8afd-44d1-91ab-9070a84a8a76" />
 
 
-all my favorite characters are fucking DEAD😭😭😭😭 DEAD IN THE WAY ILL NEVER GET CANON MEDIA OF THEM EVER AGAIN 😭😭😭😭😭😭 <br>
-mstly inactive cause *coguhs* my mc world <br>
-<img width="340" height="200" alt="image" src="https://github.com/user-attachments/assets/e1a3c8f1-c300-4eee-ab76-85be4c120a20" />
-
-
+hai! if you don't see anything on my @mrfluix account (liek the profile) then you're probably blocked !! this either means one of 2 things: 1.) you're a bb 2.) you're associated with bb's. sorry! there is no way to revert this :P shoot me a message on ata if you think there's been a mistake
 
  wip omg im so lazyyyy  <br> 
 @mrfluix this is me btw <br>

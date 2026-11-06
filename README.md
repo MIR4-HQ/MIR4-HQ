@@ -4,14 +4,11 @@
   <details>
   <summary> $\color{#e3685d}\textsf{  　　BYI  　　}$ </summary>
     
-i am omniverted chud!! i cna come off as a huge social butterfly then end up being one of the most uncommunciative and shy peple you will ever meet! <br>
-don't take this as an insult or anything PLEASE i do really want to be friends w/ people but im nervous 24/7 and takes a decent amount of time to get me social <br>
-im seriously locked in on school so you might see me every few weeks and disappear. opsie <br>
+seriously i am horrible at communciating and i have a copious amount of social defects 😭😭😭 <br>
+i like talking but keeping long-term relationships are hard for me because im terrified of interacting first due to Experiences. STILL i'm trying to get over this so i will try my best!! <Br>
 
-whisper me if  i dont respond!! :[ i always respond to whispers unless im logging out for theday <BR>
-literally mst of the time if i'm sitting around and c+hing people my social battery is probably dead LOL but feel free to talk!! <br>
-
-oh and i have dyslexia (we're working on it) (i just have a broken keyboard which makes my grammar significantly worse) (regardless dyslexia doesn't make my grammar worse it's usually just me being a fat chud) <br>
+super busy chud with school okay i appear every 2 weeks for like 20 minutes before adios <br>
+diagnosed dyslexia take it easy on me please this means no fancy fonts and having easy to read stuff ...... <br>
 
 
 [pronouns page](https://pronouns.cc/@cappytain) <- this has all the importatn stuff <br>
@@ -27,25 +24,6 @@ oh and i have dyslexia (we're working on it) (i just have a broken keyboard whic
    
 <img width="250" height="100" alt="image" src="https://github.com/user-attachments/assets/d9440a02-8afd-44d1-91ab-9070a84a8a76" />
 
-
-
-  <details>
-  <summary> $\color{#e3685d}\textsf{  　　moots  　　}$ </summary> <br>
-    hey i keep seeing people do this and obviously im included so /ij <br>
-    you are HEREBY considered a mutual because you are most likely in my PT friendslist... ok... we may not talk much but itss ok right guys rrigh (feel free to ask to remove/add) <br>
-    
-  @ATROP0SMACHINE <- this is my son <br>
-  @KURICIFER <- hi <br>
-  @wickedirene <br>
-  @finalhornet <br>
-  @cupiidshot <br>
-  @self-preservation8 <br>
-
-allm y other friends dont have ghub/dont play pt medkit newspawn sticker <br>
-shoutout nonghubbers: <br>
-@.lu <3 @.erie @.soap @.van @.snowbird @.adie @.zero @.erch @.astor @.lance @.sanat @.fluixarity <br>
-
-  </details>
 
 all my favorite characters are fucking DEAD😭😭😭😭 DEAD IN THE WAY ILL NEVER GET CANON MEDIA OF THEM EVER AGAIN 😭😭😭😭😭😭 <br>
 mstly inactive cause *coguhs* my mc world <br>

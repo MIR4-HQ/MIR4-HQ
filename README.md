@@ -28,7 +28,7 @@ diagnosed dyslexia take it easy on me please this means no fancy fonts and havin
 hai! if you don't see anything on my @mrfluix account (liek the profile) then you're probably blocked !! this either means one of 2 things: 1.) you're a bb 2.) you're associated with bb's. sorry! there is no way to revert this :P shoot me a message on ata if you think there's been a mistake
 
  wip omg im so lazyyyy  <br> 
-@mrfluix this is me btw <br>
+@mrfluix this is me btw but probably more depressed and sad but its still me!! <br>
 
 <img width="402" height="502" alt="image" src="https://github.com/user-attachments/assets/3943297c-48e3-4004-9802-45a8bbb40d07" />
 

@@ -10,6 +10,8 @@ i like talking but keeping long-term relationships are hard for me because im te
 super busy chud with school okay i appear every 2 weeks for like 20 minutes before adios <br>
 diagnosed dyslexia take it easy on me please this means no fancy fonts and having easy to read stuff ...... <br>
 
+for people who don't really know what omniversion is but it basically means i have VERY VERY high highs and very VERY low lows of social battery. there is no "middle". if im extroverted and happy in one hour i could be introverted in the next. i cant control it :[ <br>
+
 
 [pronouns page](https://pronouns.cc/@cappytain) <- this has all the importatn stuff <br>
 [sstrawpage](https://theconspiracy.straw.page/) <- if you want to send a drawing (NOT SCREENREADER FRIENDLY) <br>

@@ -26,6 +26,7 @@ for people who don't really know what omniversion is but it basically means i ha
    
 <img width="250" height="100" alt="image" src="https://github.com/user-attachments/assets/d9440a02-8afd-44d1-91ab-9070a84a8a76" />
 
+genuinely someone force me to decorate this sigh <br>
 
 hai! if you don't see anything on my @mrfluix account (liek the profile) then you're probably blocked !! this either means one of 2 things: 1.) you're a bb 2.) you're associated with bb's. sorry! there is no way to revert this :P shoot me a message on ata if you think there's been a mistake
 
